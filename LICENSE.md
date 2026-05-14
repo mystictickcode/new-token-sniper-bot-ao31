@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with premium new token sniper bot | slippage-control + multi-wallet-support. Featuring slippage-control and multi-wallet-support, it's the
 
 
 
